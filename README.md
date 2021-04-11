@@ -1,0 +1,4 @@
+**TODAY WE'RE GONNA LEARN HOW TO MAKE WAFFLES!**
+
+Here's a brief introduction to waffles to all those people who don't know about it:
+      *A waffle is a cooked food made from a batter that consists of flour, water, baking powder, oil, and eggs. It has a gridlike appearance because it is cooked in between two hot metal plates in an electric kitchen appliance called a waffle iron. Waffles are cooked until they become golden-brown in color, with a crispy outer texture and a soft interior. Waffles are served as a breakfast or as a dessert, and they are usually served with sweet sauces or toppings. Waffle has two definitions, the edible kind of waffles, but also the verb waffle means to talk on and on, often about random things.*
